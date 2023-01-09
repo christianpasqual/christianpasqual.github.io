@@ -1,1 +1,0 @@
-# christianpasqual.github.io
